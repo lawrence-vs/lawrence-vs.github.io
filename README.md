@@ -1,3 +1,3 @@
 # lawrence-vs.github.io
 
-draftv1
+Ciriculame Vita of Lawrence John van Staden
